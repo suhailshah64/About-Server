@@ -1,5 +1,6 @@
+![tyramite logo png](https://github.com/user-attachments/assets/a2784ae8-688b-40a1-8fc9-593d32d766cd)
 # About-Server
 
 
 
-![tyramite logo](https://github.com/user-attachments/assets/34c426cc-f966-4f5d-9062-f460530e8c2c)
+
