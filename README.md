@@ -3,7 +3,7 @@
 
 We're thrilled to welcome you to our vibrant gaming Discord server, where gamers of all backgrounds come together to share their passion for gaming, connect with fellow enthusiasts, and forge lasting friendships. Our community is built on the foundation of camaraderie, respect, and a shared love for gaming in all its forms.
 
-# What We Offer:
+# What We Offer: 
 
 •   Diverse Gaming Channels:
 Dive into an array of gaming channels tailored to suit your interests, whether you're into FPS, RPGs, MOBAs, strategy games, or indie gems. Share your latest gaming triumphs, seek advice, or simply hang out with like-minded gamers.
