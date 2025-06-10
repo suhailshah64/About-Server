@@ -27,4 +27,4 @@ Familiarize yourself with Discord's Terms of Service and Community Guidelines, a
 
 Join the Fun:
 We invite you to dive into our gaming community and unleash your gaming prowess! Whether you're looking for new friends, exciting gaming opportunities, or simply a place to unwind after a long day, you'll find it all here. Let's embark on this gaming adventure together and create unforgettable gaming moments!
-See you in the virtual world!
+[See you in the virtual world!](https://discord.gg/5euFaYBXTp)
